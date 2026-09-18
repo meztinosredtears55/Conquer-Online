@@ -221,4 +221,4 @@ Conquer Online is available as a full free version with all features and updates
 Start your epic journey in Conquer Online today! Download now and experience the adventure firsthand.
 
 ---
-**Last updated:** 2026-09-18 20:22:34 UTC
+**Last updated:** 2026-09-18 22:59:53 UTC
